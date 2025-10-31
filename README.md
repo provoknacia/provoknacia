@@ -41,7 +41,7 @@
 
 
 🚩 **kwork:** - https://kwork.ru/user/itquman
-✉️ **Связь:** Tg - @provoknator</p>
+✉️ **Связь:** Tg - @ofapoo</p>
 
 ###
 
